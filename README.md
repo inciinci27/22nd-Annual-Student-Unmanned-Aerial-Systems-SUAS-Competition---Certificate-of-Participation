@@ -7,4 +7,4 @@ This repository contains my official certificate for the **22nd Annual Student U
 - **Date:** June 25-26, 2024
 - **Location:** St. Mary’s County Regional Airport – California, Maryland, USA
 
-![Certificate](./image_d158d7.png)
+![Certificate](SUAS24_NQ Certificates_Univ of Gaziantep (1).pdf)
